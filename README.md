@@ -1,4 +1,5 @@
 Ilmoittakaa minulle NYT kasvotusten- 
+Just inform me NOW face to face..
 
 <!---
 OnelonCORT/OnelonCORT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
